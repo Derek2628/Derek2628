@@ -1,3 +1,3 @@
 Welcome to my space
 
-Feel free to contact me and drop your code
+Feel free to contact me and discuss about the code :)
